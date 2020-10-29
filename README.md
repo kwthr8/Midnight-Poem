@@ -1,4 +1,6 @@
 # Midnight-Poem
 A full moon poem 
-stars
+dazzling stars
 night sky
+cold air
+I'm going to a midnight fair
